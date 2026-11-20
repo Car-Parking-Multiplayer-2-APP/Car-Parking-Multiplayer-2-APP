@@ -1,6 +1,6 @@
 # Car Parking Multiplayer 2 MOD APK — Guides and Download Help
 
-Guides, tips and download help for Car Parking Multiplayer 2 MOD APK. Unlimited money, 170+ cars, free customization. Visit cpm2modapk.com
+Car Parking Multiplayer 2 MOD APK offers unlimited money, with 170+ unlocked cars, their free customization and different game modes. For any Guides, tips and download help visit cpm2modapk.com.
 
 ## Guides
 - Download the latest version: https://cpm2modapk.com
